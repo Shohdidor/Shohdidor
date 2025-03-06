@@ -1,6 +1,6 @@
 🗺️ **Местоположение**: Таджикистан 🇹🇯  
 💻 **Frontend Developer**  
-📫 **Контакты**: [Telegram](https://t.me/sh0hdidor) | [GitHub](https://github.com/Shohdidor) | [Instagram](https://www.instagram.com/spidey.01_)
+📫 **Контакты**: [Telegram](https://t.me/sh0hdidor) | [GitHub](https://github.com/Shohdidor) | [Instagram](https://www.instagram.com/sp1dey.i)
 
 ---
 
